@@ -1,5 +1,5 @@
-# COLOR-CLASH – Datenschutz
+# COLOR RUSH PARTY – Datenschutz
 
-Datenschutzerklärung und Impressum für die App COLOR-CLASH.
+Datenschutzerklärung und Impressum für die App COLOR RUSH PARTY.
 
 https://sami9x.github.io/color-clash-datenschutz/
